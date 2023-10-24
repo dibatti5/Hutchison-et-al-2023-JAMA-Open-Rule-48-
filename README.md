@@ -1,1 +1,1 @@
-# Hutchison-et-al-2023-JAMA-Open-Rule-48-
+# Hutchison-et-al-2023-JAMA-Open-Rule-48
